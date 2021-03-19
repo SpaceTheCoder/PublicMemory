@@ -21,5 +21,4 @@ Estimated time for completetion (Once project has began) 2 month - 6 month.
 
 
 
-Gta Hacks (Full gta hacks, pre-made obsitcale course spawner, Vechile spawner, Weapon modefier and spawner. Custom names and Money spawnner, Recovery and RP modifier. Undetected. Much more mods expected. FREE hack *must be free*. )
-Expected time: (Once project has began) 1 year - 1yr 6mnth.
+Gta chart ( Chart with names and location *In game* of all cargo griefer, Player campers, Random killers And much much more.)
